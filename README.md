@@ -20,6 +20,6 @@ heres my profile now
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/14d94c55-9927-4810-b0d3-59cd7a742797" />
 
 
-## 13 May 2026 <br>
-## IM BACK! RESTARTING NEXT WEEK! <br>
+## 22 June 2026 <br>
+## IM BACK! Rested after exams! NOW RESTARTING ! <br>
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/07207049-8a0c-452a-9ea6-f1a1151c9a6f" />
